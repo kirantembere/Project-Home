@@ -85,3 +85,7 @@
   * - [x] Contemporary Planter and Garden stands
   * - [x] 4 Gas burner propane grill (Lowes)
  
+ 
+# Visual Representation of Project-Home
+
+![IMG_9287](https://user-images.githubusercontent.com/28268421/114875825-afe6ea00-9dcb-11eb-9a5c-01a91dca59b6.jpg)
