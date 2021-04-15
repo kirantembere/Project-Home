@@ -22,6 +22,8 @@
   * Look for compatable virtual assistant AI technology (Alexa and google home)
  
 * 7 Seater Recliner Sofa (Top grain leather)
+* Dyson Vaccum cleaner
+
 * Virtual Assistant AI (Alexa)
   * Suggested apps - IFFTT
 
@@ -42,6 +44,7 @@
 * Home decor painting
 * Home decor Stand
 * Renpho body fat scale
+* 2 additional microwave for basement and garage
 
 * Cleaning supplies (Walmart)
   * Bona Liquid hardwood floor
