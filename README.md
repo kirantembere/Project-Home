@@ -9,7 +9,7 @@
   * Look for compatable virtual assistant AI technology (Alexa and google home)
 
 * Home Security 
-  * Brands - Ring
+  * Brand - Ring
   * Ring 10 pack home security system with sensors and motion detectors
   * Deals - Costco
   * Look for compatable virtual assistant AI technology (Alexa and google home)
