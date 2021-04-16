@@ -23,6 +23,7 @@
  
 * 7 Seater Recliner Sofa (Top grain leather)
 * Dyson Vaccum cleaner
+* Smart bulbs Day light
 
 * Virtual Assistant AI (Alexa)
   * Suggested apps - IFFTT
